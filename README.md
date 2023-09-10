@@ -1,7 +1,9 @@
 ### Hello, I'm student of Peter the Great St.Petersburg Polytechnic University and this is my GitHub main account.
 
 Subscribe on my organisation: https://vk.com/vhsrevivalsquad
+
 And my music band: https://vk.com/cringeflowerets
+
 And my friend's channel: https://www.youtube.com/@arttlu113
 <!--
 **XTNX/XTNX** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
